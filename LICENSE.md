@@ -1,4 +1,4 @@
-# 
+# Avancé degen coin sniper bot plugins pour Mac OS | Meilleur degen coin sniper bot plugins pour PC Windows. Avec gestion des reversions et enchères de gaz prioritaires — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
